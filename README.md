@@ -1,0 +1,2 @@
+# linbingqiang.github.io
+blog
